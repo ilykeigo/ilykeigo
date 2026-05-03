@@ -2,7 +2,7 @@
 <details>
   <summary>(´◞ ✚𓏼 ) directory</summary>
 
-  ![pix](https://i.postimg.cc/0QmMTr8d/IMG-7515.gif)  ꒱  [main rentry](https://rentry.co/jay) ♡ [info](https://rentry.co/shucks) ♡ [interests](https://rentry.co/celebi) ♡ [atabook](https://apathetic.atabok.org) ♡ [resources](https://rentry.co/labrynth)
+  ![pix](https://i.postimg.cc/0QmMTr8d/IMG-7515.gif)  ꒱  [main rentry](https://rentry.co/jay) ♡ [info](https://rentry.co/shucks) ♡ [interests](https://rentry.co/celebi) ♡ [atabook](https://apathetic.atabook.org) ♡ [resources](https://rentry.co/labrynth)
 
   </details>
 

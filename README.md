@@ -11,7 +11,7 @@
 <details>
   <summary>♡ important </summary>
 
-  ![pix](https://i.postimg.cc/0QmMTr8d/IMG-7515.gif)  ꒱  i do NOT consent to my ponytown skins being copied or posted! thank you ^_^ c+h always welcome i'm nice !!
+  ![pix](https://i.postimg.cc/0QmMTr8d/IMG-7515.gif)  ꒱  i do NOT consent to my ponytown skins being copied or posted! thank you ^_^ c+h always welcome i'm nice !! minors dni except for atabook, please! 
 
   </details>
 

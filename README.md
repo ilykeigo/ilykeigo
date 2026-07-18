@@ -7,3 +7,12 @@
   </details>
 
 </details>
+
+<details>
+  <summary>(´◞ ✚𓏼 ) important </summary>
+
+  ![pix](https://i.postimg.cc/0QmMTr8d/IMG-7515.gif)  ꒱  i do NOT consent to my ponytown skins being copied or posted! thank you ^_^ feel free to sit with me i'm nice
+
+  </details>
+
+</details>

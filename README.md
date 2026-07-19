@@ -1,4 +1,7 @@
 <p align="center">
+  <img src="https://i.postimg.cc/MpjwByJY/ezgif-800baaf8c89e47bb.png" alt="divider" width="500">
+</p>
+<p align="center">
   <img src="https://i.postimg.cc/4d715NwY/sparkle.gif" alt="divider" width="500">
 </p>
 <p align="center">
@@ -23,5 +26,11 @@ i hang out in mha, tadc, hoyo & other areas !!
 minors dni except for atabook asks! i'm 22yo.
 </p>
 <p align="center">
+  ⠀
+</p>
+<p align="center">
   <img src="https://i.postimg.cc/4d715NwY/sparkle.gif" alt="divider" width="500">
+</p>
+<p align="center">
+  <img src="https://i.postimg.cc/d0PYjLJ9/ezgif-89c4532941af719b.png" alt="divider" width="500">
 </p>

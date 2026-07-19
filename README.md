@@ -1,18 +1,27 @@
-![welcome.](https://i.postimg.cc/Kj3DVFGX/3e4f2fa5b124701b5f17089d9ab9b737-Photoroom.png)
-<details>
-  <summary>(´◞ ✚𓏼 ) directory</summary>
-
-  ![pix](https://i.postimg.cc/0QmMTr8d/IMG-7515.gif)  ꒱  [main rentry](https://rentry.co/jay) ♡ [info](https://rentry.co/shucks) ♡ [interests](https://rentry.co/celebi) ♡ [atabook](https://apathetic.atabook.org) ♡ [resources](https://rentry.co/labrynth)
-
-  </details>
-
-</details>
-
-<details>
-  <summary>♡ important </summary>
-
-  ![pix](https://i.postimg.cc/0QmMTr8d/IMG-7515.gif)  ꒱  i do NOT consent to my ponytown skins being copied or posted! thank you ^_^ c+h always welcome i'm nice !! minors dni except for atabook, please! 
-
-  </details>
-
-</details>
+<p align="center">
+  <img src="https://i.postimg.cc/4d715NwY/sparkle.gif" alt="divider" width="500">
+</p>
+<p align="center">
+  <img src="https://i.postimg.cc/3rkhn8FM/asset4.png" alt="divider" width="500">
+</p>
+<p align="center">
+<img src="https://i.postimg.cc/tTjhht1D/ezgif-671cea1d46e4f645.gif" alt="holy" width="55">  <img src="https://i.postimg.cc/Jhjswk9D/doll-1.gif" alt="doll" width="50">  <img src="https://i.postimg.cc/vTDwXnkX/angell.gif" alt="angel" width="60">  <img src="https://i.postimg.cc/vBsWWL15/ezgif-2c13db7a3771aea4.webp" alt="sweet" width="62">
+</p>
+<p align="center">
+hi, i go by jess or jay! say hi to me on ata ~ ♡
+</p>
+<p align="center">
+c+h always welcome. i play in safe & 18+ ^_^
+</p>
+<p align="center">
+please do not copy or post my skins !! thanks
+</p>
+<p align="center">
+i hang out in mha, tadc, hoyo & other areas !!
+</p>
+<p align="center">
+minors dni except for atabook asks! i'm 22yo.
+</p>
+<p align="center">
+  <img src="https://i.postimg.cc/4d715NwY/sparkle.gif" alt="divider" width="500">
+</p>

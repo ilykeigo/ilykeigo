@@ -23,7 +23,7 @@ please do not copy or post my skins !! thanks
 i hang out in mha, tadc, hoyo & other areas !!
 </p>
 <p align="center">
-minors dni except for atabook asks! i'm 22yo.
+revamping my profile soon... 🪽
 </p>
 <p align="center">
   ⠀
